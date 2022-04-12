@@ -1,2 +1,3 @@
 # kondiprojekt
- 
+ HI zali
+ asasa
